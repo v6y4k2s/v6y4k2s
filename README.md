@@ -58,7 +58,6 @@ I do.
 ### Now
 
 Looking for Forward Deployed Engineer, AI Solutions Engineer, and Applied AI
-Engineer roles. Based in the Philadelphia area, targeting New York, open to
-anywhere for the right team.
+Engineer roles. Open to anywhere for the right team.
 
 [LinkedIn](https://linkedin.com/in/sumedh-vyk) · [Honest Work Studio](https://instagram.com/hwspodcastt)
